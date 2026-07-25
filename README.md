@@ -1,0 +1,1 @@
+# PagosYA-app-Privacidad
